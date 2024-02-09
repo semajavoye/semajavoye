@@ -7,3 +7,7 @@
 💞️ I'm open to collaborating on diverse projects.
 
 📫 If you want to get in touch, surprise me with your creativity! 😄
+
+📨 Email: semaja.voye5_8@gmx.de
+
+📰 Discord: letsplay
